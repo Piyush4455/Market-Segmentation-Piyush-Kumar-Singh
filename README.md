@@ -1,1 +1,1 @@
-# Market-Segmentation-Piyush-Kumar-Singh
+# Case Study Of McDonalds 
